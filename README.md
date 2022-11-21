@@ -5,7 +5,7 @@
 
 📫 Findme on
 
-  [LinedIn](https://www.linkedin.com/in/stevenson-grajales/)
+  [LinkedIn](https://www.linkedin.com/in/stevenson-grajales/)
  
   [Instagram](https://www.instagram.com/stev.venson.g/)
 
